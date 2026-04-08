@@ -65,4 +65,4 @@ We may update this privacy policy from time to time. Any changes will be reflect
 
 If you have any questions about this privacy policy, please contact us at:
 
-**[Your email address here]**
+**info@mycloudis.com**
